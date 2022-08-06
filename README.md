@@ -1,8 +1,8 @@
 I'm vaporwaver or whatever the fuck my name turns into as more accounts get yeeted
 
-I do things, legal and the opposite
+I do things badly but adamantly stfu
 
-If you wanna contact me, your best bet is discord: vaporwaver#4706
+If you wanna contact me, your best bet is discord: Kusho#7958
 
 
 You can also hire me to code something
