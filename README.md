@@ -1,6 +1,6 @@
-I'm vaporwaver or whatever the fuck my name turns into as more accounts get yeeted
+I'm vaporwaver or whatever my name turns into as more accounts get yeeted
 
-I do things badly but adamantly stfu
+I do things badly but adamantly
 
 If you wanna contact me, your best bet is discord: Kusho#7958
 
